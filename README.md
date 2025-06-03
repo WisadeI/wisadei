@@ -1,1 +1,1 @@
-![](https://s8.ezgif.com/tmp/ezgif-8819e011e24de8.webp)
+![](https://i.imgur.com/2tPL0a6.gif)
